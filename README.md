@@ -1,0 +1,2 @@
+# chinafocusfund
+China Focus Fund
